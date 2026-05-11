@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Scripts new offers the most advanced jump to steal lucky blocks Script, with one-hit kill and infinite resources. Perfect
 
 
 
